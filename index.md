@@ -4,6 +4,8 @@
 
 <a href="merlin pass calendar.pdf">merlin pass calendar.pdf</a>
 
+<a href="new merlin pass calendar.pdf">new merlin pass calendar.pdf</a>
+
 <a href="holidays calendar.pdf">holidays calendar.pdf</a>
 
 <a href="bin calendar.pdf">bin calendar.pdf</a>
