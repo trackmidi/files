@@ -2,8 +2,6 @@
 ### Select a file:
 <a href="cardcodes.pdf">cardcodes.pdf</a>
 
-<a href="merlin pass calendar.pdf">merlin pass calendar.pdf</a>
-
 <a href="https://www.merlinannualpass.co.uk/media/dmbloyix/silver-pass-restriction-dates-2025.pdf">new merlin pass calendar</a>
 
 <a href="holidays calendar.pdf">holidays calendar.pdf</a>
