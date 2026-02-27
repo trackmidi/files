@@ -6,6 +6,6 @@
 
 <a href="https://www.penistone-gs.uk/_files/ugd/f05506_76bd3604e9ee44a7b435016e72f0447d.pdf">holidays calendar 25/26</a>
 
-<a href="bin calendar.pdf">bin calendar.pdf</a>
+<a href="https://waste.barnsley.gov.uk/bincalendars/Week%201%20Day%202.pdf">bin calendar.pdf</a>
 
 <a href="https://www.merlinannualpass.co.uk/prebook/manage-trips/">merlin annual pass booking</a>
